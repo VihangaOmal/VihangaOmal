@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **vihangaomal7@gmail.com**
   
-- ⚡ Fun fact **Call me as Nihanga**
+- ⚡ Fun fact **Call me as vihanga**
 
 </td>
 <td width="50%" align="center">
